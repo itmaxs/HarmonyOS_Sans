@@ -1,1 +1,0 @@
-# HarmonyOS_Sans
